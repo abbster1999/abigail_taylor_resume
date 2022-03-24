@@ -1,2 +1,2 @@
 Hey, Abby!
-This is your weird classmate from Sweden.
+This is your weird classmate from Sweden
